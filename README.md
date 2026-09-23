@@ -3,7 +3,7 @@
 $${\color{#de788b}Greetings \space \color{#facc8b}fellow \space \color{#de788b}person}$$
 
 <p align="center">
-<img src="https://i.postimg.cc/g0YnrZQ6/Untitled93-20260923201222.png" width="500">
+<img src="https://i.postimg.cc/sg22rrWF/Untitled93-20260923201756.png" width="500">
 </p>
 
 $${\color{#de788b}Visit \space \color{#facc8b}my \space \color{#de788b}socials \space \color{#facc8b}ty}$$
